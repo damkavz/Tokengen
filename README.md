@@ -12,7 +12,7 @@
 
 ### Also keep in head this is one of my first bigger projects.
 
->Gonna add the script whenever I'm done with it
+>Gonna add the code whenever I'm done with it
 
 
  **-Sincerely damkavz** 💋
