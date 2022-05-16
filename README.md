@@ -17,3 +17,5 @@
 
  **-Sincerely damkavz** 💋
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![GENGAR](https://1.bp.blogspot.com/-D-RkhU9mizM/UnKKl-cXUVI/AAAAAAAAF5w/Xltvv91vW8M/s200/gengar+pokemon+gif.gif)
+
+not gonna work unfortunately stopped developing this project
